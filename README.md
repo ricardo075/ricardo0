@@ -1,0 +1,2 @@
+# ricardo0
+APRENDER PARA UM NOVO FUTURO
